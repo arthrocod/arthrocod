@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @arthrocod
-- 👀 I’m interested in integrating stuff like emotions, technologies and senses
-- 🌱 I’m currently learning how to create tentacles
+- 👋 Hi, I’m @arthrocod, I'm a wanderer
+- 👀 I’m interested in integrating emotions and sense to technologies, conforming to authoritative standards and norms
+- 🌱 I’m currently learning how to create tentacles th
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @arthrocod wherever..
 
